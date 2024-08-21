@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+I'm currently working on learning more about coding.
+I'm looking for help with learning more about coding and how to improve my skills.
+How to reach me: lukachekadam@gmail.com
+Fun facts: I like to play video games, ride rollercoasters, and my favorite subject to read is mythology.
